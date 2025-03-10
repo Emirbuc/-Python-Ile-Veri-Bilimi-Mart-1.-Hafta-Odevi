@@ -1,0 +1,1 @@
+# -Python-Ile-Veri-Bilimi-Mart-1.-Hafta-Odevi
